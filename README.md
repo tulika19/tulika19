@@ -12,7 +12,7 @@
 ---
 
 ## 📞 **Contact Information**
-- **Address:** 1 Southbourne Avenue, Colindale, NW9 5BU, UK  
+- **Address:** NW9 5BU, London UK  
 - **Mobile:** +44(0)7780050796  
 - **Email:** [choudhury.tulika.19@gmail.com](mailto:choudhury.tulika.19@gmail.com)
 
